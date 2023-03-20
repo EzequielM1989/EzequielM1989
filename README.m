@@ -1,0 +1,1 @@
+Hi! I am Ezequiel, and I’m 33 years old. I am an electronics engineer with ten years of experience in telecommunications, specifically with radiofrequency circuits and antennas. Now, I am interested in learning about cloud computing.
